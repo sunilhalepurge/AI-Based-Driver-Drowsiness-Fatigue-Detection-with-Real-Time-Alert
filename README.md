@@ -190,7 +190,7 @@ AI / ML Engineer | Automation Enthusiast | Computer Vision Developer
 GitHub:  
 https://github.com/sunilhalepurge
 
-LinkedIn: *(Add your LinkedIn profile)*
+LinkedIn:(https://www.linkedin.com/in/sunilshalepurge47/)
 
 ---
 
